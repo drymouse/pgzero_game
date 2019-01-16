@@ -15,7 +15,8 @@ Credits for efx sounds from SoundBible.com
 [Space Invaders sounds](http://samples.mameworld.info/Unofficial%20Samples.htm)
 
 ＃追伸　2019/01/16
-ここは編集されました。
-吾輩は猫である
-メロスは激怒した
-ぼくは悪くない
+　ここは編集されました
+　吾輩は猫である
+　メロスは激怒した
+　ぼくは悪くない
+　Women yiqi xuexi zhongwen ba?
