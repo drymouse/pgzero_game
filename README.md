@@ -13,3 +13,9 @@ Credits for efx sounds from SoundBible.com
 - [loser sound](http://soundbible.com/1810-Wind.html)
 
 [Space Invaders sounds](http://samples.mameworld.info/Unofficial%20Samples.htm)
+
+＃追伸　2019/01/16
+ここは編集されました。
+吾輩は猫である
+メロスは激怒した
+ぼくは悪くない
